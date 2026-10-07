@@ -1,0 +1,2 @@
+# premium-gut-string-001-gut-string-scrape-twist-cord
+Struggling to organize your gut string scraping and cord twisting experiments across scattered notes and spreadsheets? The Gut String &amp; Scrape Twist Cord Craft Lab is your all-in-one Notion workspace designed specifically for luthiers, string makers, and fiber artists who need precision tracking without the chaos.  This template eliminates guesswor
